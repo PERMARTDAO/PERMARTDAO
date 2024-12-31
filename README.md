@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @PERMARTDAO
+-    Looking for INVESTERS
+- 👀 I’m interested in building sustainable art,education and web3 center.
+- 🌱 I’m currently learning about Web3
+- 💞️ I’m looking to collaborate on web3 developers
+- 📫 How to reach me ... permartcenter@gmail.com
+- whitepaper : https://drive.google.com/file/d/1Huvxw_o9ssicsidJi6V7KagN6WoKwtGD/view?usp=sharing
